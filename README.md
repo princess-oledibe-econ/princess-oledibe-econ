@@ -1,8 +1,8 @@
  Princess Diana Oledibe
 
-Quantitative Policy Researcher | Applied Econometrics & human Capital**
+Quantitative Policy Researcher | Applied Econometrics & human Capital
 
-[princessoledibenepc@gmail.com](mailto:princessoledibenepc@gmail.com) |  
+[princessoledibenepc@gmail.com](mailto:princessoledibenepc@gmail.com)  
 
  Research Focus & Focus Lanes
 
