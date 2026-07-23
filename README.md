@@ -9,8 +9,11 @@ Quantitative Policy Researcher | Applied Econometrics & human Capital**
 My research sits at the intersection of applied microeconomics, labor policy, and human capital development. I specialize in evaluating institutional frictions, qualification recognition processes, and skilled labor integration across international systems.
 
 Lane 1: Education Economics & Returns to Non-Traditional and Digital Credentials
+
 Lane 2: Labor Market Policy, Skilled Migration Integration & Administrative Barriers
+
 Lane 3: Applied Microeconometrics & Public Program Evaluation (Logframe, baseline monitoring, and audit compliance)
+
 Lane 4: Health Economics, Workplace Well-being & Operational Safety (HACCP safety parameter modeling)
 
 
